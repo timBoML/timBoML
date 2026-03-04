@@ -1,3 +1,3 @@
-## Hello, I am Tim/TimBo👋
+## Hello, I am timBo👋
 
 
